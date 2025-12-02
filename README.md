@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vrohs
-- 📫 How to reach me ...vivekrohtasvi@outlook.com/[https://x.com/rohsfr](https://substack.com/@vrohs)
+- 📫 How to reach me ...vivekrohtasvi@outlook.com/https://substack.com/@vrohs/https://www.linkedin.com/in/vivek-rohtasvi-20897b202/
 
 <!---
 Vrohs/Vrohs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
